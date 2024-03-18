@@ -27,3 +27,15 @@ Aur kyahi karous abb
  ofjmof
  kdbnkdsnks
  kbsdkb
+ duuisfb
+ udbckubcsk
+ kidbcsbc
+ uibckucb
+ idbckiusbc
+ bcib
+ akkiubcukic
+ kibcksb
+ cubu
+ kibcucb
+ kibdcucb
+ 
