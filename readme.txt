@@ -38,4 +38,24 @@ Aur kyahi karous abb
  cubu
  kibcucb
  kibdcucb
+ zbzcdbkj
+ kjdkcbkjdc
+ kjdbckjdbc
+ zkjdbckjbc
+ bdckjsdbc
+ idbckjz
+ jkdcbkjzbc
+ bckjbzk
+ kjdcbkjz
+ dlihnkcb
+ dcljbdkcs
+ ljdbckjcbs
+ jjcbdkjdcsb
+ kjbcksbc
+ kjdkcbkjdckdcjbkj
+ sdckbkjcds
+ dsbckcd
+ jdcsbkjdcs
+ kjdbckbssdkcbj
+ 
  
